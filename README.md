@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **alomhossain367@gmail.com**
 
-- 📄 Know about my experiences [i am Alom Hossain As a web designer, my objective is to make a positive impact on clients, co-workers, and the Internet using my skills and experience to design compelling and attractive websites. Solving code problems. Editing & Design with designing team in the company to build perfect web designs.](i am Alom Hossain As a web designer, my objective is to make a positive impact on clients, co-workers, and the Internet using my skills and experience to design compelling and attractive websites. Solving code problems. Editing & Design with designing team in the company to build perfect web designs.)
+- 📄 Know about my experiences i am Alom Hossain As a web designer, my objective is to make a positive impact on clients, co-workers, and the Internet using my skills and experience to design compelling and attractive websites. Solving code problems. Editing & Design with designing team in the company to build perfect web designs.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
